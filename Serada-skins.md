@@ -1,7 +1,9 @@
 # Serada's skin compilation
 
 Here you can find all of Serada's skins that she is using on her stream [here](https://www.twitch.tv/serada).
+
 To download a skin, simply press on the name of it and it will lead you to a download page. 
+
 If any download links are broken or skins simply missing, message arokomi#6760 on Discord.
 
 ## Serada's official skin is not included in this list because it is a private skin.

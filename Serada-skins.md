@@ -1,6 +1,6 @@
 # Serada's skin compilation
 
-You can find all of Serada's skins that she is using on her stream [here](https://www.twitch.tv/serada).
+Here you can find all of Serada's skins that she is using on her [stream](https://www.twitch.tv/serada).
 
 To download a skin, simply press on the name of it and it will lead you to a download page. 
 

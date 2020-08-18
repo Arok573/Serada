@@ -2,7 +2,7 @@
 
 Here you can find all of Serada's skins that she is using on her [stream](https://www.twitch.tv/serada).
 
-To download a skin, simply press on the name of it and it will lead you to a download page. 
+To download a skin, simply press on the name and it will lead you to a download page. 
 
 If any download links are broken or skins simply missing, message arokomi#6760 on Discord.
 

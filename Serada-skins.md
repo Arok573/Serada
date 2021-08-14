@@ -14,9 +14,5 @@ If any download links are broken or skins simply missing, message arokomi#6760 o
 # [-+kanna kamui Chan+-](https://www.mediafire.com/file/d1oujtkxled84aq/-+kanna_kamui_Chan+-.osk/file)
 ![](https://i.imgur.com/ibnApg4.jpg)
 
-# [Eternity's DiTF 002](https://osuskins.net/skin/LutJNut)
-![](https://i.imgur.com/0NNiCZ5.jpg)
-
-# [- #�� [TAKA]+Tobisawa Misaki ��# -](https://mega.nz/file/JrhBgIIa#yaSDP02W2ZHFdW3vYveoBoxYYfxm5nJ0o8lPiadqTjE)
-![](https://i.imgur.com/2aDHAjj.jpg)
-
+# [WhiteCat (1.0)『CK』- Serada edit](https://drive.google.com/file/d/1xR0qBjdqFiQhlylxihJyLx2IKKDUIwDp/view)
+![](https://i.imgur.com/wwCGzN2.jpg)

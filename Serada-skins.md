@@ -6,7 +6,6 @@ To download a skin, simply press on the name and it will lead you to a download 
 
 If any download links are broken or skins simply missing, message arokomi#6760 on Discord.
 
-## Serada's official skin is not included in this list because it is a private skin.
 
 # [WhiteCat (1.0)『CK』](http://www.mediafire.com/file/6250ar1z1jq0aes/_%2523_WhiteCat_%25281.0%2529_%25E3%2580%258ECK%25E3%2580%258F_%2523-.osk/file)
 ![](https://i.imgur.com/DFPnxFy.jpg)
